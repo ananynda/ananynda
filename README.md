@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ananynda
+- 👀 I’m interested in gardening, baking
+- 🌱 I’m currently learning datascience and machine learning
+- 💞️ I’m looking to collaborate and contribute positively
+- 📫 How to reach me (https://www.linkedin.com/in/ananya-das-1a3197231/)
+- 😄 Pronouns: Ananya
+- ⚡ Fun fact: PJ
